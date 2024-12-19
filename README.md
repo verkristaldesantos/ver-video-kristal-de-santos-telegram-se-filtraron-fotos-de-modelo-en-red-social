@@ -2,6 +2,15 @@
 
 Se ha viralizado la información sobre la existencia de supuestas fotos y video de la modelo Kristal de Santos en la red social Telegram, por eso muchas personas han despertado la curiosidad de saber si es cierto o no y de dónde surge todo el escándalo.
 
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+
 La influencer de 19 años ha estado implicada en un escándalo en las últimas horas, esto debido unas supuestas fotos y vídeo filtrados de ella en Telegram, donde se supone que aún era menor de edad, sin embargo ella ha aclarado todo en un video.
 
 Su cuenta de Instagram cuenta con más de 222 mil seguidores, quienes han estado pendientes de lo que comparte la influencer, por eso la noticia sobre ella ha sido tendencia en México y a nivel internacional.
